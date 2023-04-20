@@ -14,3 +14,7 @@ https://thesephist.com/
 
 https://wiki.xxiivv.com/site/home.html
 
+https://devonzuegel.com/page/about-me
+
+
+
